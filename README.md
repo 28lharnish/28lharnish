@@ -1,1 +1,2 @@
-write stuff dude
+discord is @ljharnish
+other places too 
