@@ -1,2 +1,3 @@
-discord is @ljharnish
-other places too 
+# Socials
+- YouTube, TikTok, Instagram, etc.
+  - @ljharnish
